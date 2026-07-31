@@ -10,3 +10,5 @@ https://moneybots.myshoppex.io/product/donation
 https://moneybots.myshoppex.io/
 
 https://t.me/moneybotsdigital
+
+https://www.youtube.com/@moneybots3186
